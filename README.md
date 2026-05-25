@@ -66,6 +66,6 @@ o	Overall Attrition Rate: 9.7%
 
 🤝 Connect
 
-💼 LinkedIn:
+💼 LinkedIn:www.linkedin.com/in/sneha-c-kulkarni
 
 📧 Email:snehachaitanya123@gmail.com
