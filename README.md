@@ -63,3 +63,9 @@ o	Overall Attrition Rate: 9.7%
 •	Microsoft Excel (Pivot Tables, Charts, KPIs)
 
 •	Data Visualization & Analysis
+
+🤝 Connect
+
+💼 LinkedIn:
+
+📧 Email:snehachaitanya123@gmail.com
